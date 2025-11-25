@@ -1,6 +1,6 @@
 
 
-[![senli1073](https://img.shields.io/badge/senli1073-github-blue?logo=github)](https://github.com/senli1073)
+
 
 I will be a Postdoctoral Researcher at the Alfred Wegener Institute for Polar and Marine Research starting in February 2025.
 
