@@ -1,16 +1,8 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- American Geophysical Union Travel Grant (Colorado State University Graduate Student Council), 2024
 
-- National Scholarship for Graduate Students (Ministry of Education, China), 2024.
+- Outstanding Physics Learning Assistant (American Association of Physics Teachers), 2018
 
-- First-Prize Graduate Academic Scholarship (CUMT), 2024.
+- Sigma Pi Sigma (Physics Honor Society), 2018
 
-- First-Prize Graduate Academic Scholarship (CUMT), 2023.
-
-- Freshman Scholarship (CUMT), 2022.
-
-- Outstanding Undergraduate Thesis Award (Jiangsu, China), 2022.
-
-- First-Prize Corporate Scholarship (CUMT), 2020.
-
-- First-Prize Undergraduate Academic Scholarship (CUMT), 2019.
+- Distinction in Major (Physics and Mathematical Sciences, Colby College), 2018
