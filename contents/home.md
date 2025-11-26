@@ -2,7 +2,7 @@
 
 
 
-I will be a Postdoctoral Researcher at the Alfred Wegener Institute for Polar and Marine Research starting in February 2025.
+I will be a Postdoctoral Researcher at the Alfred Wegener Institute for Polar and Marine Research starting in February 2025. My research focuses on exploring large-scale climate variability, with a current focus on understanding the causes and consequences of recent Antarctic sea ice change.
 
 #### Contact
 
