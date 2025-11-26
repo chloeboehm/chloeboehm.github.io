@@ -1,3 +1,4 @@
+
 -  Boehm, C.L., Thompson, D.W.J., and E. Blanchard-Wrigglesworth, <strong>Invited Oral Presentation</strong> Sep. 2025. "The Key Role of the Southern Annular Mode during the Sea-Ice Maximum for Antarctic Sea Ice and its Recent Loss." Scientific Committee on Antarctic Research, AntClimNow (Near-term Variability and Prediction of the Antarctic Climate System) Monthly Science Talks
 - Boehm, C.L., Thompson, D.W.J., and E. Blanchard-Wrigglesworth, Oral Presentation Jun. 2025. "Exploring the Local Atmospheric Response to Antarctic Sea Ice Loss." 30th Annual CESM Workshop 2025
 - Boehm, C.L., Thompson, D.W.J., and E. Blanchard-Wrigglesworth, Oral Presentation Apr. 2025. "The Key Role of the Southern Annular Mode During the Seasonal Sea Ice Maximum in Recent Antarctic Sea Ice Loss." European Geosciences Union General Assembly 2025
